@@ -1,0 +1,1 @@
+# Comparision-of-positive-cases-of-COVID-19-for-states-having-similar-population-as-of-Goa
